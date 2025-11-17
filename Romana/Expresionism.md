@@ -1,0 +1,2 @@
+Este o manifestare a [[Modernism|Modernismului]]. Reprezinta o miscare prin care se promoveaza intensitatea expresiei. Astfel, spiritul creator nu poate ramane pasiv in fata obiectului conteplat si are menirea de a da acelui lucru expresia noua intr-un mod subiectiv.
+In lirica expresionista se gaseste: raportarea la absolut, intensitatea violenta a trairii si limbajul vehement si spontan.
